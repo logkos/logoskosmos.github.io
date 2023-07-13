@@ -1,1 +1,1 @@
-# logkos.github.io
+# logoskosmos.github.io
